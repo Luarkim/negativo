@@ -1,0 +1,2 @@
+# negativo
+tarefa da etec
